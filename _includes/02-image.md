@@ -1,0 +1,1 @@
+![Zack's headshot](https://media-exp1.licdn.com/dms/image/C4D03AQHRWFACq66VFg/profile-displayphoto-shrink_400_400/0?e=1612396800&v=beta&t=YrjefhNaCqDFqpPZILrSPgqAWmiE8U9VEDjES7WzPPA)
