@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+I really like:
+* Walks along the beach at sunset
+* Candlelit dinners
+* Going to concerts
